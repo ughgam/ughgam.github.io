@@ -1,2 +1,2 @@
 # ughgam.github.io
-Bday goft for myself 
+Bday gift for myself 
